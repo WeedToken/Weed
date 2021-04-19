@@ -10,6 +10,8 @@ Twitter:- https://twitter.com/weed_tokenbsc
 
 website:- https://weedtoken.finance
 
+medium:- https://medium.com/@weedtoken
+
 
 WELCOME TO WEED.
 
